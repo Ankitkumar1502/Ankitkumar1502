@@ -1,5 +1,5 @@
 # 💫 About Me:
-FULL STACK DEVELOPER | MERN STACK SPECIALIST | Problem Solver | Freelancer
+FULL STACK DEVELOPER | MERN STACK SPECIALIST | Problem Solver | FREELANCER
 
 
 ## 🌐 Socials:
